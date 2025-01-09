@@ -2,7 +2,7 @@
 Kick takipçi satın al hizmetiyle ucuz, hızlı ve güvenli kick takipçi arttırma ve kick takipçi botu paketleri.
 
 <a href="https://takipci.al/kick-takipci-satin-al/">
-  <img src="https://github.com/user-attachments/assets/65d30e61-b120-4b43-8ad1-c1b416d73886" width="800" />
+  <img src="https://github.com/user-attachments/assets/bdfd2121-d25e-4df2-b48b-e2a49c93b163" width="800" />
 </a>
 Kick Takipçi Satın Al | Hızlı ve Gerçek Takipçi Arttırma
 Kick platformunda kanalınızın etkisini artırmak için en etkili yöntemlerden biri takipçi sayınızı hızla büyütmektir. Kick takipçi satın al hizmetimizle kanalınıza yeni bir soluk getirebilir, görünürlüğünü arttırabilirsiniz.
@@ -45,3 +45,7 @@ Gerçek Takipçiler mi Satın Alacağım?
 Evet, paketlerimizde gerçek ve aktif takipçiler sunmaktayız.
 
 Takipci.Al olarak Kick kanalınızı geliştirmeniz için yanınızdayız. Hemen paketlerimize göz atın ve siparişinizi oluşturun!
+
+
+
+
